@@ -1,2 +1,0 @@
-# Birthday-card-
-Wishing birthday 
